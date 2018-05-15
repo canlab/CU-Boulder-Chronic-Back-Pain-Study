@@ -1,5 +1,5 @@
 # We are currently enrolling!
-If you are aged 21 - 70 and have had back pain for the past 3 or more months, you may be eligible.
+If you are aged 21 - 70 and have had back pain for the past 3 or more months, you may be eligible.  Read on!
 
 ## Background
 Recent research has dramatically changed our understanding of chronic pain.  It has suggested that the brain plays a central role in chronic pain.
