@@ -11,4 +11,4 @@ This study has two goals.  First, we aim to advance our scientific understanding
 The study will take about 8 weeks.  It requires two functional MRI brain scans -- one before and one after treatment.  The brain scans are safe and noninvasive (no radioactivity, no contrast agents).  We will also ask you to complete a number of questionnaires.  
 
 ## Interested in learning more?
-Please visit [http://canlabweb.colorado.edu/cbp](http://canlabweb.colorado.edu/cbp) to learn more about the study and to complete a short survey to help us determine your eligibility
+Please visit **[http://canlabweb.colorado.edu/cbp](http://canlabweb.colorado.edu/cbp)** to learn more about the study and to complete a short survey to help us determine your eligibility
